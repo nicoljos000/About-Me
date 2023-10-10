@@ -3,9 +3,8 @@
 ### Education
 Westchester Academy for International Studies
 
+## School Activities
 
+NAHS (National Art Honor Society) Member
 
-## Languages
-English
-
-Learning Spanish
+Introductory-Level Spanish (3 Years)
